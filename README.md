@@ -1,2 +1,0 @@
-# paulsolt.github.io
-Blog
